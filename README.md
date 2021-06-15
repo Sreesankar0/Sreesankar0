@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **sreeappu1237@gmail.com**
 
-- ⚡ Fun fact **I'm a pure vegan who hasn't had a single cup of tea or coffee since birth.**
+- ⚡ Fun fact -
 
 
 <h3 align="left">Languages and Tools:</h3>
